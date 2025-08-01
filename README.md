@@ -1,0 +1,1 @@
+# gymouv-assets
